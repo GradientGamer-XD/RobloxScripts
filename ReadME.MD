@@ -1,0 +1,1 @@
+i make detailed assets
